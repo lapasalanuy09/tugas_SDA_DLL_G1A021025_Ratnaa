@@ -1,0 +1,1 @@
+# tugas_SDA_DLL_G1A021025_Ratnaa
